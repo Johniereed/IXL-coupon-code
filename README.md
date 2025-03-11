@@ -1,4 +1,4 @@
-# IXL Coupon Code 2025 | 50% Discount For Students & Students
+# IXL Coupon Code 2025 | 50% Discount For Students & Teachers
 
 If you’re looking for an [IXL coupon code](https://in.ixl.com/) in 2025, then you are in the right place.
 
